@@ -1,0 +1,2 @@
+# PracaMagisterska2024
+PracaMagisterska2024
